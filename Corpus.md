@@ -5,3 +5,4 @@
 1. 别人是吃饭，我这叫进食
 1. 我要透你啦，zx！
 1. 很润，得加钱
+1. There's no jacky, here's come Johny!
